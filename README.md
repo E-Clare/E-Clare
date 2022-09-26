@@ -1,0 +1,3 @@
+- Hi, I’m @E-Clare
+- I’m interested in game design.
+- I’m currently learning too much at once...
